@@ -60,7 +60,7 @@ If you find any errors or have suggestions for improvements, please feel free to
 
 ---
 
-Connect with me on [LinkedIn](https://www.linkedin.com/in/naumanalimurad)
+Connect with me on [LinkedIn](https://www.linkedin.com/in/smhmzaidi)
 
 ---
 
